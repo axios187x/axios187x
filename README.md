@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... cyber security and red team ops
 - 🌱 I’m currently learning ... fundementals of programming ligic
 - 💞️ I’m looking to collaborate on ...anything
-- 📫 How to reach me ...email axxhelll@gmail.com ir txt 8132141000
+- 📫 How to reach me ...email axxhelll@gmail.com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ... Retired Marine
 
